@@ -17,4 +17,5 @@ condición alguna para explotar con la
 creatividad.
 
 *Profesora Gisela Flores
-![Captura de pantalla (303)](https://user-images.githubusercontent.com/83018594/189736980-41fd565d-0b8a-451d-ac0d-5642561f7b9f.png)
+
+![Captura de pantalla (304)](https://user-images.githubusercontent.com/83018594/189737064-129a97e3-1c2c-496a-9aec-1b88a2831002.png)
